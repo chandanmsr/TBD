@@ -1,2 +1,2 @@
 # TBD
-To Be Destined - A Modern Dating &amp; Matrimony App
+To Be Destined - A Modern Dating
